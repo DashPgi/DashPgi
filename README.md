@@ -6,4 +6,4 @@
 - 💬 Ask me about My Skill , My Motivate,My Goal and My Dreams
 - 📫 How to reach me: If(i want ): you can find me.  else: you Can't never Find me :))
 - 😄 Pronouns: ofcourse him/he
-- ⚡ Fun fact: Curious builder who enjoys coding, languages, and future technologies. Selective with goals. Relentless with execution.
+- ⚡ Fun fact: Curious builder who enjoys coding, design, program, IT knowledge and future technologies. Selective with goals. Relentless with execution.
